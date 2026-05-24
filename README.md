@@ -10,7 +10,13 @@
 
 ★ huge finpol fan ( arguably #1 ) feel free to ask me about it ! idm explaining my AU or why i even ship it in the first place since its such a rarepair
 
+★ british patriot ! 🇬🇧🫶🏽 raised in England
+
+★ i speak english & polish and im mixed between polish & kurdish ........ hooray
+
 ★ do not talk to me about sovreich , rusame , gerpol , any other finland ships etc please , extremely uncomfortable with those , especially TR ships 
+
+★ dont make jokes about my accent it really isnt funny to be fair
 
 ★ quick disclaimer i dont see usa and uk as family so do not come after me for shipping it . there is no " canon " to countryhumans , it's up to interpretation , and in mine they are not a family . i do not care about the fandom majority as im only in it to do my own thing and not listen to others about that , im not accepting any criticism
 
