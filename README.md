@@ -14,6 +14,6 @@
 
 ★ quick disclaimer i dont see usa and uk as family so do not come after me for shipping it . there is no " canon " to countryhumans , it's up to interpretation , and in mine they are not a family . i do not care about the fandom majority as im only in it to do my own thing and not listen to others about that , im not accepting any criticism
 
-★ standard dni , proship , under 13 , doubles 
+★ standard dni , proship , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
