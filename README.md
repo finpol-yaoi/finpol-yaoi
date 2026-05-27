@@ -10,7 +10,7 @@
 
 ★ huge finpol fan ( arguably #1 ) feel free to ask me about it ! idm explaining my AU or why i even ship it in the first place since its such a rarepair
 
-★ british patriot ! 🇬🇧🫶🏽 raised in England
+★ british + polish patriot ! 🇬🇧🇵🇱🫶🏽 raised in England
 
 ★ i speak english & polish and im mixed between polish & kurdish ........ hooray
 
@@ -20,6 +20,8 @@
 
 ★ quick disclaimer i dont see usa and uk as family so do not come after me for shipping it . there is no " canon " to countryhumans , it's up to interpretation , and in mine they are not a family . i do not care about the fandom majority as im only in it to do my own thing and not listen to others about that , im not accepting any criticism
 
-★ standard dni , proship , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
+★ another disclaimer , i am not a part of the polish group in the CH area . i do not want to be involved in any form of drama that is related to them 
+
+★ standard dni , proship , right wing people , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
