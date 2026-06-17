@@ -14,11 +14,11 @@
 
 ★ i speak english & polish and im mixed between polish & kurdish ........ hooray
 
-★ do not talk to me about sovreich , rusame , gerpol , any other finland ships etc please , extremely uncomfortable with those , especially TR ships 
+★ do not talk to me about sovreich , rusame , gerpol , any other finland ships etc please , and especially TR ships 
 
 ★ dont make jokes about UK accents its like the most unfunny shit ever copy and pasted 
 
-★ quick disclaimer i dont see usa and uk as family so do not come after me for shipping it . there is no " canon " to countryhumans , it's up to interpretation , and in mine they are not a family . i do not care about the fandom majority as im only in it to do my own thing and not listen to others about that , im not accepting any criticism
+★ i dont see usuk as family , do not come after me for liking it . there is no " canon " to CH , it's up to interpretation , in mine they are not a family . i do not care about the fandom majority , im only in it to do my own thing and not listen to others about it , politically they're two cheeks of the same ass anyway
 
 ★ another disclaimer , i am not a part of the polish group in the CH area . i do not want to be involved in any form of drama that is related to them 
 
