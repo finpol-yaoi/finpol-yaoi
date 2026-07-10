@@ -8,7 +8,7 @@
 
 ★ all art on this profile is made by me
 
-★ huge finpol fan ( arguably #1 ) feel free to ask me about it ! idm explaining my AU or why i even ship it in the first place since its such a rarepair
+★ #1 finpol fan , feel free to ask me about it ! idm explaining my AU or why i even ship it in the first place since its such a rarepair
 
 ★ british + polish patriot ! 🇬🇧🇵🇱🫶🏽 raised in England
 
@@ -16,12 +16,12 @@
 
 ★ do not talk to me about sovreich , rusame , gerpol , any other finland ships etc please , and especially TR ships 
 
-★ dont make jokes about UK accents its like the most unfunny shit ever copy and pasted 
-
 ★ i dont see usuk as family , do not come after me for liking it . there is no " canon " to CH , it's up to interpretation , in mine they are not a family . i do not care about the fandom majority , im only in it to do my own thing and not listen to others about it , politically they're two cheeks of the same ass anyway
 
 ★ another disclaimer , i am not a part of the polish group in the CH area . i do not want to be involved in any form of drama that is related to them 
 
 ★ standard dni , proship , zionists , supporters of israel in general , right wing , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iwk2b7zfnthei57wzd2nrj5r4i&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
