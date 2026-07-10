@@ -4,7 +4,7 @@
 ### info for the CH area !
 ———
 
-★ almost always available for c+h , look out for the 🎭 status above my head !
+★ available for c+h most of the time , look out for the 🎭 status on me
 
 ★ all art on this profile is made by me
 
@@ -12,11 +12,11 @@
 
 ★ british + polish patriot ! 🇬🇧🇵🇱🫶🏽 raised in England ,, mixed race
 
-★ dni sovreich , rusame , gerpol , any other finland ships etc please , and especially TR ships ,, im just really not a fan of most CH ships anyway gulp
+★ dni sovreich , rusame , gerpol , any other finland ships and especially TR ships ,, im just really not a fan of most CH ships anyway gulp !!!! erhh other ones iwc
 
 ★ i dont see usuk as family , there is no " canon " to CH , it's up to interpretation , in mine they are not a family . i do not care about the fandom majority , im in it to do my own thing and not listen to others about it . politically they're two cheeks of the same ass anyway LMAOO
 
-★ another disclaimer , i do not want to be involved in any form of drama that is related to the polish group of the area
+★ i do not want to be involved in any form of drama that is related to the polish group of the area
 
 ★ standard dni , proship , zionists / israel supporters , right wing , under 13 , doubles , TR cosplayers / fictkins / etc
 
