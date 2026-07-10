@@ -22,6 +22,10 @@
 
 ★ standard dni , proship , zionists , supporters of israel in general , right wing , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iwk2b7zfnthei57wzd2nrj5r4i&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iwk2b7zfnthei57wzd2nrj5r4i&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
