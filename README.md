@@ -4,23 +4,21 @@
 ### info for the CH area !
 ———
 
-★ almost always available for c+h , look out for the 🎭 status above my head ! unless im talking to someone , it means im w2i 
+★ almost always available for c+h , look out for the 🎭 status above my head !
 
 ★ all art on this profile is made by me
 
-★ #1 finpol fan , feel free to ask me about it ! idm explaining my AU or why i even ship it in the first place since its such a rarepair
+★ #1 finpol fan , feel free to ask me about it ,, idm explaining my AU or why i even ship it in the first place since its such a rarepair
 
-★ british + polish patriot ! 🇬🇧🇵🇱🫶🏽 raised in England
+★ british + polish patriot ! 🇬🇧🇵🇱🫶🏽 raised in England ,, mixed race
 
-★ i speak english & polish and im mixed between polish & kurdish ........ hooray
+★ dni sovreich , rusame , gerpol , any other finland ships etc please , and especially TR ships ,, im just really not a fan of most CH ships anyway gulp
 
-★ do not talk to me about sovreich , rusame , gerpol , any other finland ships etc please , and especially TR ships 
+★ i dont see usuk as family , there is no " canon " to CH , it's up to interpretation , in mine they are not a family . i do not care about the fandom majority , im in it to do my own thing and not listen to others about it . politically they're two cheeks of the same ass anyway LMAOO
 
-★ i dont see usuk as family , do not come after me for liking it . there is no " canon " to CH , it's up to interpretation , in mine they are not a family . i do not care about the fandom majority , im only in it to do my own thing and not listen to others about it , politically they're two cheeks of the same ass anyway
+★ another disclaimer , i do not want to be involved in any form of drama that is related to the polish group of the area
 
-★ another disclaimer , i am not a part of the polish group in the CH area . i do not want to be involved in any form of drama that is related to them 
-
-★ standard dni , proship , zionists , supporters of israel in general , right wing , under 13 , doubles , TR cosplayers or anything like that ( including fictkins etc bc ive seen a few of you ... wtf )
+★ standard dni , proship , zionists / israel supporters , right wing , under 13 , doubles , TR cosplayers / fictkins / etc
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
