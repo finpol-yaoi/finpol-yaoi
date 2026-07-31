@@ -12,7 +12,7 @@
 
 ★ patriot 🇬🇧🇵🇱 raised in England ,, mixed race
 
-★ dni sovreich , rusame , gerpol , any other finland ships and especially TR ships ,, im just really not a fan of most CH ships anyway gulp !!!! other ones just iwc tbh
+★ dni rusame , gerpol , any other finland ships and especially TR / USSR ships (including sovreich) ,, im just really not a fan of most CH ships anyway gulp !!!! other ones just iwc tbh
 
 ★ i dont see usuk as family , there is no " canon " to CH , im in the fandom to do my own thing . politically they're two cheeks of the same ass anyway LMAOO
 
